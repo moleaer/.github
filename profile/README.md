@@ -17,7 +17,7 @@ Our solutions are designed for:
 
 ## Our Impact
 
-With over 3,000 installations in more than 55 countries, we are committed to transforming industries through our anti-bubble-bursting technology. Our partnerships with leading organizations and research institutions validate the effectiveness of our solutions in tackling global challenges like water scarcity and environmental degradation.
+With over 3,000 installations in more than 55 countries, we are committed to transforming industries through our cutting-edge technology. Our partnerships with leading organizations and research institutions validate the effectiveness of our solutions in tackling global challenges like water scarcity and environmental degradation.
 
 ---
 
